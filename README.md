@@ -1,1 +1,1 @@
-# lirui.github.io
+#wechat
